@@ -1,3 +1,5 @@
+
+
 About me
 * ѕєвαѕтιαη // ѕєв ! Most people know me as Sebastian or Seb, I don’t rlly mind if you call me by my nickname! (I love the nicknames..)
 * -Extreme introvert, but when you get to know me I’m more energetic and pleasing to hang out with. Most of the time I’m not rlly active on pt! But I enjoy c+h when inactive.
