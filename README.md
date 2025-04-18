@@ -23,7 +23,7 @@ Don’t be shy and int! I love interacting with people, but I don’t rlly come 
 ![3559B8FF-3B8F-4B31-809F-F14BB3BBC7A3](https://github.com/user-attachments/assets/e1e4b236-00f6-4c37-8e93-da6212621e0e)
 
 -LF//looking for..
-Looking for my beloved Stu.. horror fans, Mario fans, rdr/rdr2 fans. People that aren’t scared to int! AA please int if you are interested in any of these.. 
+FOUND MY BELOVED STU.(@davewilliammiller) cough.. //horror fans, Mario fans, rdr/rdr2 fans. People that aren’t scared to int! AA please int if you are interested in any of these.. 
 
 I need some horror fans that enjoy horror movies as much as i do, (LF!) On the lookout.. im always watching.
 
