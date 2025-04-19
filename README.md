@@ -9,12 +9,15 @@ Speaking of pt, you will mostly see me in horror characters ! I mainly use my Mi
 Don’t be shy and int! I love interacting with people, but I don’t rlly come up first.. if you’re too shy then don't! I absolutely don’t force people to int.
 
 
+![IMG_7366](https://github.com/user-attachments/assets/83617227-d94d-4473-a296-8b08713ea6b5)
+
+
 -interests!
 * Huge horror fan! I love super Mario games.. I’m also obsessed with rdr/rdr2! I love Minecraft! I play roblox sometimes just certain games that I enjoy! I also have a Nintendo switch that you can add me on. (IF you have one.)
 * I love certain types of deserts! 
 * Ice cream//cake//healthy foods// sweets!  -I REALLY LOVE HANGING OUT WITH MY FRIENDS ON PT!! makes me smile everyday, even though I’m barely even active on the game, I still enjoy sitting next to them while I work on personal stuff. 
-*
-*
+
+
 * -DNI//do not interact with me IF.
 * Racist
 * Blackwashing/whitewashing 
